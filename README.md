@@ -1,1 +1,0 @@
-# Six-Week-Training-Blog-
